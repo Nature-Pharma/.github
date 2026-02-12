@@ -55,4 +55,4 @@ La planta central, ubicada en el **Parque Empresarial La Maja de Arnedo**, está
 
 ---
 
-> 📌 Este perfil está diseñado para ofrecer una visión clara y profesional de Nature-Pharma como organización líder en fabricación de suplementos alimenticios bajo contrato, mostrando su misión, capacidades, logros y valores fundamentales.
+
